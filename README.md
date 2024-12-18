@@ -1,2 +1,2 @@
-# Presentaci-n-Marketing
+# Presentación-Marketing
 Información y visualizaciones del trabajo
